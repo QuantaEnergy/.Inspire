@@ -1,0 +1,1 @@
+- [Amazon, Google & Microsoft Embrace Nuclear Power to Fuel Massive AI & Cryptocurrency Energy Demands](https://youtu.be/D6mOQ6AzTEw)
