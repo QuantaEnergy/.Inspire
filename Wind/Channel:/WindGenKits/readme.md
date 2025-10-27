@@ -1,0 +1,1 @@
+- [FP-640 Permanent Magnet Alternator](https://youtu.be/Xi0OnG1THRE)
